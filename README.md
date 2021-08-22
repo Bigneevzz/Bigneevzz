@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bigneevzz
+- 👀 I’m interested in METAVERSE NFT 
+- 🌱 I’m currently learning FOREX
+- 💞️ I’m looking to collaborate on NFT INTO MUSIC INDUS
+- 📫 How to reach me N3.3VZZ@GMAIL.COM
